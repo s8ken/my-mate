@@ -1,2 +1,1 @@
-# my-mate
-only for you and me 
+line from the television show I mentioned in our chat 
